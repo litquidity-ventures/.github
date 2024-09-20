@@ -1,3 +1,3 @@
-# we lit bitch
+# we lit
 
 more to come
